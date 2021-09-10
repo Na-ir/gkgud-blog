@@ -1,7 +1,7 @@
-name = "Iffat Zia"
-# avatar = "images/profile.png" # Avatar image. Default to "images/profile.webp".
+name = "Nazir hussain"
+# avatar = "images/nazir.jpg" # Avatar image. Default to "images/nazir.jpg".
 bio = "Content Developer, SEO Specialist."
-company = "iTechf"
+company = "gkgud"
 location = "India"
 # about = "https://domain.tld" # The external about page. The internal about page will be used if not set.
 
