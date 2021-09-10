@@ -1,7 +1,7 @@
 ---
 title: 'How To Clean Fridge Inside'
 date: 
-draft: true
+draft: false
 tags: ['Clean Fridge', 'clean refrigerator', 'cleaning liquid', 'cleaning spray', 'Fridge cleaning hacks', 'Fridge cleaning spray', 'Kitchen']
 ---
 
