@@ -1,18 +1,19 @@
-+++
-title = "Contact"
-description = "Contact Itechf, the world's Leading Tech Blog"
-author = "ahmad"
-aliases = ["contact-us", "contact-itechf"]
-date = "2021-01-01T15:12:36"
-reward = false
-postDate = false
-readingTime = false
-type = "page"
-+++
+---
+title: "Contact"
+description: "gkgud, The world's online make money blog"
+author: "ahmad"
+date: "2020-11-01T15:12:36"
+aliases: ["Contact-us", "Contact-gkgud"]
+reward:  false
+postDate: alse
+readingTime: false
+type: "page"
+---
 
-## Get In Touch
+Get In Touch
+============
 
-Contact us using this email Id for queries, feedback, suggestion, any information, or in the case of any complaint.
+Contact us using this email Id for queries, feedback, suggestion, any information or in the case of any complaint.  
 We will get back to you as soon as possible.
 
-itechf@hotmail.com
+**gkgud@outlook.com**

@@ -1,18 +1,31 @@
-+++
-title = "Copy Right"
-description = "Copy Right Itechf, the world's Leading Tech Blog"
-author = "ahmad"
-date = "2021-01-01T15:12:36"
-reward = false
-postDate = false
-readingTime = false
-type = "page"
-+++
+---
+title: "Copy Right"
+description: "Copy Right gkgud, The world's online make money blog"
+author: "ahmad"
+date: "2020-11-01T15:12:36"
+reward: false
+postDate: false
+readingTime: false
+type: "page"
+---
 
-## Copy Right
-  
-itechf.com Most of the Images from pixabay.com or pexels.com. And also we have taken a few images from Google Images, Pinterest, Flickr, Wikipedia, Tumblr, and Other Social Media Websites. 
+If you require any more information or have any questions about our site's disclaimer, please feel free to contact us by email at contact@gkgud.com. Our Disclaimer was generated with the help of the [Disclaimer Generator](https://www.disclaimergenerator.net/).
 
-Our many articles curated by authors using many website images. feel free to contact us at itechf@hotmail.com we will remove if any copyrighted.
+Disclaimers for www.gkgud.com
+-----------------------------
 
-Please Provide these informations of Owner Like Name, Email, Url of the post and Image.
+All the information on this website - http://www.gkgud.com - is published in good faith and for general information purpose only. www.gkgud.com does not make any warranties about the completeness, reliability, and accuracy of this information. Any action you take upon the information you find on this website (www.gkgud.com), is strictly at your own risk. www.gkgud.com will not be liable for any losses and/or damages in connection with the use of our website.
+
+From our website, you can visit other websites by following hyperlinks to such external sites. While we strive to provide only quality links to useful and ethical websites, we have no control over the content and nature of these sites. These links to other websites do not imply a recommendation for all the content found on these sites. Site owners and content may change without notice and may occur before we have the opportunity to remove a link which may have gone 'bad'.
+
+Please be also aware that when you leave our website, other sites may have different privacy policies and terms which are beyond our control. Please be sure to check the Privacy Policies of these sites as well as their "Terms of Service" before engaging in any business or uploading any information. Our Privacy Policy was created by [the Privacy Policy Generator](https://www.generateprivacypolicy.com/).
+
+Consent
+-------
+
+By using our website, you hereby consent to our disclaimer and agree to its terms.
+
+Update
+------
+
+Should we update, amend or make any changes to this document, those changes will be prominently posted here.
