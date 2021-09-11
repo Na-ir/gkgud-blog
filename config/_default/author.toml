@@ -1,5 +1,5 @@
 name = "Nazir Hussain"
-# avatar = "images/nazir.jpg" # Avatar image. Default to "images/nazir.jpg".
+avatar = "images/nazir.jpg" # Avatar image. Default to "images/nazir.jpg".
 bio = "Content Developer, SEO Specialist."
 company = "gkgud"
 location = "India"
