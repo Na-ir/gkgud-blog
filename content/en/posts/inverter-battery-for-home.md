@@ -98,7 +98,7 @@ Best Inverter Battery
 
 [**View On Amazon**](https://amzn.to/386ZLMJ)
 
-![inverter battery types | inverter battery backup](https://www.gkgud.com/wp-content/uploads/2020/12/Luminous-Battery-1024x1024.jpg)
+![inverter battery types | inverter battery backup](https://img.gkgud.com/2020/12/Luminous-Battery-1024x1024.jpg)
 
 #### **Special Features**
 
@@ -139,7 +139,7 @@ Best Inverter Battery
 
 [View On Amazon](https://amzn.to/3npz0cB)
 
-![inverter battery for home | inverter battery cost](https://www.gkgud.com/wp-content/uploads/2020/12/Exide-Technologie-1024x680.jpg)
+![inverter battery for home | inverter battery cost](https://img.gkgud.com/2020/12/Exide-Technologie-1024x680.jpg)
 
 #### **Special Features**
 
@@ -180,7 +180,7 @@ Best Inverter Battery
 
 [View On Amazon](https://amzn.to/34l3NQt)
 
-![inverter battery maintenance |  inverter battery for home](https://www.gkgud.com/wp-content/uploads/2020/12/Amaron-Tubular-Battery.jpg)
+![inverter battery maintenance |  inverter battery for home](https://img.gkgud.com/2020/12/Amaron-Tubular-Battery.jpg)
 
 #### **Special Features**
 
@@ -224,7 +224,7 @@ Best Inverter Battery
 
 [View On Amazon](https://amzn.to/3r5SANE)
 
-![inverter battery backup time | inverter battery capacity](https://www.gkgud.com/wp-content/uploads/2020/12/V-Guard-Inverter-Battery.jpg)
+![inverter battery backup time | inverter battery capacity](https://img.gkgud.com/2020/12/V-Guard-Inverter-Battery.jpg)
 
 #### **Special Features**
 
@@ -265,7 +265,7 @@ Best Inverter Battery
 
 [View On Amazon](https://amzn.to/3p3Chix)
 
-![inverter battery company | inverter battery backup](https://www.gkgud.com/wp-content/uploads/2020/12/Genus-Hallabol-Inverter-Battery.jpg)
+![inverter battery company | inverter battery backup](https://img.gkgud.com/2020/12/Genus-Hallabol-Inverter-Battery.jpg)
 
 #### **Special Features**
 

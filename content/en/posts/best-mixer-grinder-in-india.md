@@ -104,7 +104,7 @@ Some higher RPM changes the excess cost of ingredients to be handled within a sh
 
 *   Basically, Blades made with stainless steel material and runs for a longer time and gives a better-grinding action.
 
-![mixer grinder Blade Type](https://www.gkgud.com/wp-content/uploads/2020/12/Types-of-mixer-blades.jpg)
+![mixer grinder Blade Type](https://img.gkgud.com/2020/12/Types-of-mixer-blades.jpg)
 
 **Blade Type**
 
@@ -128,7 +128,7 @@ You May [](https://www.gkgud.com/geyser-for-kitchen/) Also Like [-Top 5 Best Gey
 
 Before buying the **best mixer grinder in India** and the **best mixer grinder juicer** you should know how much jars are providing by brands. There are many types of jars, which you need for several purposes.
 
-![Number Of Jars](https://www.gkgud.com/wp-content/uploads/2020/12/Number-of-bundled-jars.jpg)
+![Number Of Jars](https://img.gkgud.com/2020/12/Number-of-bundled-jars.jpg)
 
 Number Of Jars
 

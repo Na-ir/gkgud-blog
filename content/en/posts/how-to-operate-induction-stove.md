@@ -25,7 +25,7 @@ How To Use Prestige Induction Stove
 
 Prestige Induction Stove is the best Induction Stove which can give efficiency.
 
-![how to use induction cooker manual](https://www.gkgud.com/wp-content/uploads/2021/01/prestige.jpg)
+![how to use induction cooker manual](https://img.gkgud.com/2021/01/prestige.jpg)
 
 how to use induction cooker manual
 
@@ -41,7 +41,7 @@ How To Use Induction Stove Pigeon
 
 Completely safe if you want to cook breakfast, lunch, or dinner for your family.
 
-![how to trick an induction cooker](https://www.gkgud.com/wp-content/uploads/2021/01/pigeon-induction-stove-1024x683.jpg)
+![how to trick an induction cooker](https://img.gkgud.com/2021/01/pigeon-induction-stove-1024x683.jpg)
 
 how to trick an induction cooker
 
@@ -58,7 +58,7 @@ How To Cook Vegetables On Induction Cooktop
 
 One of the easiest ways to cook vegetables on an induction cooktop nowadays is to just Plugin and place the cooker or utensil of induction stove .
 
-![how to trick an induction cooker](https://www.gkgud.com/wp-content/uploads/2021/01/cooking-on-induction-stove-1024x843.jpg)
+![how to trick an induction cooker](https://img.gkgud.com/2021/01/cooking-on-induction-stove-1024x843.jpg)
 
 how to trick an induction cooker
 
@@ -100,7 +100,7 @@ Induction On Off Problem
 
 On-Off induction cooktop problems might happen then when no proper supply of power is going to the Induction Stove.
 
-![how to operate induction stove](https://www.gkgud.com/wp-content/uploads/2021/01/on-and-off-prestige-induction-stove.jpg)
+![how to operate induction stove](https://img.gkgud.com/2021/01/on-and-off-prestige-induction-stove.jpg)
 
 how to operate induction stove
 

@@ -87,7 +87,7 @@ Best Geyser Table
 
 #### **Product Details**
 
-![geyser for kitchen | geyser for bathroom](https://www.gkgud.com/wp-content/uploads/2020/12/Monza-DX-1.jpg)
+![geyser for kitchen | geyser for bathroom](https://img.gkgud.com/2020/12/Monza-DX-1.jpg)
 
 *   **Model No and Type : **Monza DX 15 Litre
 *   **Capacity :** 10/15/25 Liter perfect for big Families
@@ -145,7 +145,7 @@ Best Geyser Table
 
 [View On  Amazon](https://amzn.to/384OoF0)
 
-![](https://www.gkgud.com/wp-content/uploads/2020/12/Orient-Electric.jpg)
+![](https://img.gkgud.com/2020/12/Orient-Electric.jpg)
 
 #### **Key Features**
 
@@ -235,7 +235,7 @@ AO Smith
 *   **BEE Star Rating :** 5 Star
 *   **Warranty:** 8 years on Tank, 3 years on Element, 2 years on Product.
 
-![Geyser for hard water |  Geyser for home    ](https://www.gkgud.com/wp-content/uploads/2020/12/Usha-Aquerra.jpg)
+![Geyser for hard water |  Geyser for home    ](https://img.gkgud.com/2020/12/Usha-Aquerra.jpg)
 
 [View On Amazon](https://amzn.to/2KsIqpt)
 
@@ -278,7 +278,7 @@ AO Smith
 
 [View On Amazon](https://amzn.to/2WhB7DH)
 
-![geyser for kitchen | geyser for bathroom](https://www.gkgud.com/wp-content/uploads/2020/12/Bajaj-Caldia.jpg)
+![geyser for kitchen | geyser for bathroom](https://img.gkgud.com/2020/12/Bajaj-Caldia.jpg)
 
 #### **Key Features**
 
