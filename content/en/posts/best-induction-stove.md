@@ -115,7 +115,7 @@ Touch button
 
 [View On Amazon](https://amzn.to/2J5UCfg)
 
-![induction gas stove | best induction stove in India](https://www.gkgud.com/wp-content/uploads/2020/12/Philips-Viva-1.jpg)
+![induction gas stove | best induction stove in India](https://img.gkgud.com/2020/12/Philips-Viva-1.jpg)
 
 #### **Key Features**
 
@@ -163,7 +163,7 @@ Touch button
 
 [View On Amazon](https://amzn.to/3awpWzo)
 
-![best induction stove in India ](https://www.gkgud.com/wp-content/uploads/2020/12/Pigeon.jpg)
+![best induction stove in India ](https://img.gkgud.com/2020/12/Pigeon.jpg)
 
 #### **Key Features**
 
@@ -214,7 +214,7 @@ The smooth and flat surface of the cooktop is easier to clean than any conventio
 
 [View On Amazon](https://amzn.to/3ati954)
 
-![induction gas stove  |  electric induction stove](https://www.gkgud.com/wp-content/uploads/2020/12/prestige-1.jpg)
+![induction gas stove  |  electric induction stove](https://img.gkgud.com/2020/12/prestige-1.jpg)
 
 #### **Special Features**
 
@@ -267,7 +267,7 @@ The smooth and flat surface of the cooktop is easier to clean than any conventio
 
 [View On Amazon](https://amzn.to/3rhFtIX)
 
-![](https://www.gkgud.com/wp-content/uploads/2020/12/Havells.jpg)
+![](https://img.gkgud.com/2020/12/Havells.jpg)
 
 #### **Key Features**
 
@@ -318,7 +318,7 @@ The smooth and flat surface of the cooktop is easier to clean than any conventio
 
 [View On Amazon](https://amzn.to/3h7RFY5)
 
-![](https://www.gkgud.com/wp-content/uploads/2020/12/Bajaj.jpg)
+![](https://img.gkgud.com/2020/12/Bajaj.jpg)
 
 #### **Key Features**
 
@@ -370,7 +370,7 @@ Below is a description of each type of electric induction stove for you regardin
 
 *   **Built-in Stovetops**
 
-![Best Induction Stove | gas stove with induction](https://www.gkgud.com/wp-content/uploads/2020/12/built-in-induction-stove.jpg)
+![Best Induction Stove | gas stove with induction](https://img.gkgud.com/2020/12/built-in-induction-stove.jpg)
 
 Built-in Stovetops
 
@@ -384,7 +384,7 @@ In addition to the built-in stovetops, they are available in many colors in the 
 
 *   **Freestanding Induction**
 
-![Best Induction Stove | gas stove with induction ](https://www.gkgud.com/wp-content/uploads/2020/12/free-standing-oven.jpg)
+![Best Induction Stove | gas stove with induction ](https://img.gkgud.com/2020/12/free-standing-oven.jpg)
 
 Freestanding Induction
 
@@ -398,7 +398,7 @@ It is probably a precious kind of induction cooktop and yet very less popular in
 
 *   **Portable & Compact Cooktops**
 
-![Best Induction Stove | induction gas stove](https://www.gkgud.com/wp-content/uploads/2020/12/Compact-Cooktops.jpg)
+![Best Induction Stove | induction gas stove](https://img.gkgud.com/2020/12/Compact-Cooktops.jpg)
 
 Compact Cooktops
 

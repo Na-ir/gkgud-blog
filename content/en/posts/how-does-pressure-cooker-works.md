@@ -18,7 +18,7 @@ Scroll down the quick guide of How Does Pressure Cooker Works.
 
 All types of pressure cooker works on the simple principle in order to cook your timely and efficient.
 
-![how does pressure cooker works](https://www.gkgud.com/wp-content/uploads/2021/01/how-does-pressure-cooker-works-edited.jpg)
+![how does pressure cooker works](https://img.gkgud.com/2021/01/how-does-pressure-cooker-works-edited.jpg)
 
 how does pressure cooker works
 
@@ -40,7 +40,7 @@ It is the process of cooking your food with the help of high-pressure steam prod
 
 Use the pressure cooker in simple steps:
 
-![how does pressure cooker works](https://www.gkgud.com/wp-content/uploads/2021/01/hawkins-pressure-cooker.jpg)
+![how does pressure cooker works](https://img.gkgud.com/2021/01/hawkins-pressure-cooker.jpg)
 
 how does pressure cooker works
 
@@ -57,7 +57,7 @@ how does pressure cooker works
 
 Always but the best pressure cooker for the safety purpose, don't buy the local brand best pressure cooker because they have some disadvantages of pressure cooking.
 
-![Butterfly Blue Line Stainless Steel Pressure Cooker.](https://www.gkgud.com/wp-content/uploads/2021/01/Best-pressure-cooker.jpg)
+![Butterfly Blue Line Stainless Steel Pressure Cooker.](https://img.gkgud.com/2021/01/Best-pressure-cooker.jpg)
 
 Butterfly Blue Line Stainless Steel Pressure Cooker.
 
@@ -77,7 +77,7 @@ All the above types of the pressure cooker are available online & you can buy at
 
 Currently, customers buy the stainless steel pressure cooker due to its shiny looks & high durability.
 
-![how does pressure cooker works](https://www.gkgud.com/wp-content/uploads/2021/01/Prestige-pressure-cooker.jpg)
+![how does pressure cooker works](https://img.gkgud.com/2021/01/Prestige-pressure-cooker.jpg)
 
 how does pressure cooker works
 
@@ -104,7 +104,7 @@ You can get the different types of pressure cooker in the market :
 
 It is one of the oldest types of pressure cooker & it is operated on weight-modified valve through which pressure release.
 
-![how does pressure cooker works](https://www.gkgud.com/wp-content/uploads/2021/01/cello-pressure-cooker-1024x1024.jpg)
+![how does pressure cooker works](https://img.gkgud.com/2021/01/cello-pressure-cooker-1024x1024.jpg)
 
 how does pressure cooker works
 

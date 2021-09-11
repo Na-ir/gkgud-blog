@@ -114,7 +114,7 @@ we will discuss the **top 5 best dishwashers in India** along with their revie
 
 [View on Amazon](https://amzn.to/3p717Ox)
 
-![best dishwasher brand | best dishwasher ever | ](https://www.gkgud.com/wp-content/uploads/2020/12/Bosch-12-Place-1.jpg)
+![best dishwasher brand | best dishwasher ever | ](https://img.gkgud.com/2020/12/Bosch-12-Place-1.jpg)
 
 #### **Key Features**
 
@@ -164,7 +164,7 @@ we will discuss the **top 5 best dishwashers in India** along with their revie
 
 [View On Amazon](https://amzn.to/3muAJfs)
 
-![best dishwasher in india | best dishwasher brand | ](https://www.gkgud.com/wp-content/uploads/2020/12/Voltas-Beko.jpg)
+![best dishwasher in india | best dishwasher brand | ](https://img.gkgud.com/2020/12/Voltas-Beko.jpg)
 
 #### **Key Features**
 
@@ -218,7 +218,7 @@ we will discuss the **top 5 best dishwashers in India** along with their revie
 
 [View On Amazon](https://amzn.to/3mr9ylR)
 
-![best kitchen dishwasher | best dishwasher brand](https://www.gkgud.com/wp-content/uploads/2020/12/LG-14-Place.jpg)
+![best kitchen dishwasher | best dishwasher brand](https://img.gkgud.com/2020/12/LG-14-Place.jpg)
 
 #### **Key Features**
 
@@ -267,7 +267,7 @@ we will discuss the **top 5 best dishwashers in India** along with their revie
 
 [View On Amazon](https://amzn.to/2LBSwoi)
 
-![best dishwasher in india | best dishwasher brand](https://www.gkgud.com/wp-content/uploads/2020/12/IFB-Neptune.jpg)
+![best dishwasher in india | best dishwasher brand](https://img.gkgud.com/2020/12/IFB-Neptune.jpg)
 
 #### **Key Features**
 
@@ -316,7 +316,7 @@ we will discuss the **top 5 best dishwashers in India** along with their revie
 
 [View On Amazon](https://amzn.to/2KA1u4S)
 
-![](https://www.gkgud.com/wp-content/uploads/2020/12/Siemens-12-Place.jpg)
+![](https://img.gkgud.com/2020/12/Siemens-12-Place.jpg)
 
 #### **Key Features**
 
@@ -391,7 +391,7 @@ Countertop dishwashers are the most affordable in the dishwasher category and sa
 
 Their working principle is simple – connect the pipe to the kitchen sink faucet for water inlet and a power source to operate them.It comes in 4 place settings and is best for small families.
 
-![](https://www.gkgud.com/wp-content/uploads/2020/12/Siemens-12-Place-Settings.jpg)
+![](https://img.gkgud.com/2020/12/Siemens-12-Place-Settings.jpg)
 
 #### **The capacity of the dishwasher**
 

@@ -2,6 +2,7 @@
 title: 'Interesting Facts About Mobile Phones'
 date: Mon, 03 May 2021 11:30:00 +0000
 draft: false
+images: ["https://img.gkgud.com/2021/04/GgGudHindi-Thumbnail.png"]
 tags: ['Fact']
 ---
 
@@ -46,7 +47,7 @@ Interesting Facts About Mobile Phones
 
 **12**. दुनिया में mobile phone use करने वालों में से 90 % लोग फ़ोन पर आये टेक्स्ट मैसेजेस को 3 मिनट के अंदर पढ़ लेते है।
 
-![Facts About Mobile Phones](https://gkgud.com/wp-content/uploads/2021/05/Facts-About-Mobile-Phones.jpg)
+![Facts About Mobile Phones](https://img.gkgud.com/2021/05/Facts-About-Mobile-Phones.jpg)
 
 **13**. आप यह बात जानकर हैरान होंगे 2012 में world largest company APPLE ने 1 सेकंड में 4 Mobile यानि प्रतिदिन 3,40,000 mobile बेचे।
 
@@ -80,7 +81,7 @@ Interesting Facts About Mobile Phones
 
 27\. अधिकतर लोगों को यह पता नहीं होता है कि बुटलोडर अनलॉक करने से डिवाइस की वारंटी खत्म नहीं होती है बल्कि डिवाइस की वारंटी तब खत्म होती है जब डिवाइस को रूट की जाती है।
 
-![About Mobile Phones](https://gkgud.com/wp-content/uploads/2021/05/About-Mobile-Phones.jpg)
+![About Mobile Phones](https://img.gkgud.com/2021/05/About-Mobile-Phones.jpg)
 
 28\. आप अपने मुताबिक एंड्राइड फोन की एनिमेशन स्केल को घटा बढ़ा सकते हैं यहां पर एनिमेशन का मतलब है कि टच की प्रोसेसिंग प्रक्रिया कितनी फास्ट काम करें।
 

@@ -33,7 +33,7 @@ So, think particularly about the reason for your buying. there are some of the q
 
 ### **Application of the foot massager machine**
 
-![best-foot -massager](https://www.gkgud.com/wp-content/uploads/2020/12/Foot-massager-2.jpg)
+![best-foot -massager](https://img.gkgud.com/2020/12/Foot-massager-2.jpg)
 
 Section of the application is also another important factor to consider while purchasing the **best** **foot massager machine**.
 
@@ -54,7 +54,7 @@ Preferably than open design, some models have a little option that provides them
 **Types of Foot Massagers**
 ---------------------------
 
-![Types of Foot Massagers](https://www.gkgud.com/wp-content/uploads/2020/12/Types-of-Foot-Massagers.jpg)
+![Types of Foot Massagers](https://img.gkgud.com/2020/12/Types-of-Foot-Massagers.jpg)
 
 Based on the functioning mode, foot massagers are categorized into different types.
 
@@ -119,7 +119,7 @@ Spa massagers are larger and more heavy in weight than regular electric foot mas
 **Design of the Foot Massager**
 -------------------------------
 
-![Best foot massager](https://www.gkgud.com/wp-content/uploads/2020/12/Foot-Massager-1.jpg)
+![Best foot massager](https://img.gkgud.com/2020/12/Foot-Massager-1.jpg)
 
 Each foot has different features and different systems.
 
