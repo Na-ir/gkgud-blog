@@ -2,6 +2,7 @@
 title: 'Top 5 Best Geyser for Kitchen in India Buying Guide'
 date: Sat, 05 Dec 2020 06:57:26 +0000
 draft: false
+images: ["https://img.gkgud.com/2020/12/Geyser-for-home.jpg"]
 tags: ['best geyser', 'best geyser for home', 'best geyser for kitchen', 'best geyser in india', 'Geyser', 'Kitchen']
 ---
 

@@ -6,7 +6,7 @@ description = "An extreme fast, responsive and feature-rich blog theme for Hugo"
 keywords = "Hugo, Bootstrap, Blog Theme"
 # images = ["site-feature-image.jpg"]
 
-logo = "images/itechf-logo.png" # Logo image. Default to "images/logo.webp".
+logo = "images/gkgud-logo.png" # Logo image. Default to "images/logo.webp".
 #brand = "ITECHF"
 # menusPosition = "left" # Menus position: right(default), left or center.
 

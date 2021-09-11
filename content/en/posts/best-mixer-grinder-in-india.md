@@ -1,6 +1,7 @@
 ---
 title: 'How To Find Best Mixer Grinder in India 2021 Reviews & Buying Guide'
 date: Thu, 31 Dec 2020 06:00:20 +0000
+images: ["https://img.gkgud.com/2020/12/best-mixer-grinder-in-india.jpg"]
 draft: false
 tags: ['5 best mixer grinder in india', '5 best mixer grinder juicer', 'best mixer grinder in india list', 'best mixer grinder in india price', 'Home Appliances', 'Kitchen', 'the best mixer grinder in india']
 ---

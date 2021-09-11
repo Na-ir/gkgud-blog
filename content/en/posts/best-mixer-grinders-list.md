@@ -1,6 +1,7 @@
 ---
 title: 'Top 10 Best Mixer Grinders List'
 date: Thu, 24 Dec 2020 12:24:17 +0000
+images: ["https://img.gkgud.com/2020/12/Mixer-Grinders-In-India.jpg"]
 draft: false
 tags: ['Home Appliances', 'Kitchen']
 ---

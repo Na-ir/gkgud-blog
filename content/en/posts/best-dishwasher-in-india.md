@@ -2,6 +2,7 @@
 title: 'Top 5 Best Dishwasher in India - Review Buyers Guide'
 date: Mon, 14 Dec 2020 04:30:00 +0000
 draft: false
+images: ["https://img.gkgud.com/2020/12/Best-Dishwaser-in-Home-compressed.jpg"]
 tags: ['dishwasher brands', 'dishwasher guide', 'dishwasher price', 'Kitchen']
 ---
 

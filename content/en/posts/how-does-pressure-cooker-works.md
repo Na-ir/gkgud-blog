@@ -2,6 +2,7 @@
 title: 'How Does Pressure Cooker Works'
 date: Mon, 08 Feb 2021 02:30:00 +0000
 draft: false
+images: ["https://img.gkgud.com/2021/01/Pressure-Cooker.jpg"]
 tags: ['best pressure cooker', 'disadvantages of pressure cooking', 'how does pressure cooker works', 'Kitchen', 'side effects of pressur cooker', 'stainless steel pressure cooker', 'types of pressure cooker']
 ---
 

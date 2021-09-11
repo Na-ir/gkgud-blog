@@ -1,6 +1,7 @@
 ---
 title: 'Top 5 Best Induction Stove in India - Reviews & Buyers Guide'
 date: Tue, 22 Dec 2020 13:58:23 +0000
+images: ["https://img.gkgud.com/2020/12/Best-Induction-Stove-1.jpg"]
 draft: false
 tags: ['electric induction stove', 'induction stove for home', 'induction stove price', 'Kitchen']
 ---

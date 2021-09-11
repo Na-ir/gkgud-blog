@@ -2,6 +2,7 @@
 title: 'Top 5 Best Inverter Battery for Home in India Buyers Guide'
 date: Sat, 26 Dec 2020 04:30:00 +0000
 draft: false
+images: ["https://img.gkgud.com/2020/12/inverter-battery-for-home-compressed.jpg"]
 tags: ['best inverter battery', 'Home Appliances', 'inverter battery for home', 'inverter battery in india', 'top rated inverter battery']
 ---
 

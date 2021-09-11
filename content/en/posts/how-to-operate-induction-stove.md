@@ -2,6 +2,7 @@
 title: '8 Best Tips of How To Operate Induction Stove'
 date: Sun, 24 Jan 2021 02:30:00 +0000
 draft: false
+images: ["https://img.gkgud.com/2021/01/how-to-operate-induction-stove.jpg"]
 tags: ['Home Appliances', 'Kitchen']
 ---
 

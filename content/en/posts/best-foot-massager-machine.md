@@ -1,6 +1,7 @@
 ---
 title: 'How To Find Best foot massager machine In India 2021 Complete Buying Guide'
 date: Sun, 03 Jan 2021 04:30:00 +0000
+images: ["https://img.gkgud.com/2020/12/Foot-Massager.jpg"]
 draft: false
 tags: ['best foot massager', 'foot massager machine', 'Home Appliances', 'jsb foot massager', 'leg massage machine', 'lifelong foot massager']
 ---

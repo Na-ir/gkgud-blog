@@ -2,6 +2,7 @@
 title: '8 Best Trending Products to buy in 2021'
 date: Thu, 17 Dec 2020 11:25:51 +0000
 draft: false
+images: ["https://img.gkgud.com/2020/12/best-trending-products-to-buy.jpg"]
 tags: ['amazon trending products', 'Kitchen', 'tending products']
 ---
 
