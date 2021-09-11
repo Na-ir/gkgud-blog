@@ -1,6 +1,6 @@
 ---
-title: "Copy Right"
-description: "Copy Right gkgud, The world's online make money blog"
+title: "Disclaimer"
+description: "Disclaimer gkgud, The world's online make money blog"
 author: "ahmad"
 date: "2020-11-01T15:12:36"
 reward: false

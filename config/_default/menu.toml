@@ -1,6 +1,6 @@
 [[main]]
-  name = "Blogging"
-  identifier = "blogging"
+  name = "Kitchen"
+  identifier = "Kitchen"
 #  pre = '<i class="fas fa-fw fa-chevron-circle-down"></i>'
 
 #
@@ -40,3 +40,9 @@
   identifier = "terms-and-conditions"
   name = "Terms and Conditions"
   url = "/terms-and-conditions/"
+
+
+  [[footer]]
+  identifier = "disclaimer"
+  name = "Disclaimer"
+  url = "/disclaimer/"
