@@ -73,7 +73,7 @@ Some heaters are introduced for larger indoor and outdoor locations. What they d
 
 In this mode of energy transfer, no communication is required. Again and again, all you want to know is the name '**Radiant Heater'** and find out the best one.
 
-![Infrared Heater To Room](https://www.gkgud.com/wp-content/uploads/2020/12/Infrared-Heater-To-Room.jpg)
+![Infrared Heater To Room](https://img.gkgud.com/2020/12/Infrared-Heater-To-Room.jpg)
 
 Infrared Heater To Room
 
@@ -152,7 +152,7 @@ at this time, we are dealing with the heating appliances, we advise some brands 
 
 I f I suggest a Room Heater, Havells Room Heater are with a good company plane, which is a reliable brand for home appliances, they offer a range of good room heaters to beat the cold weather.
 
-![havells room heater](https://www.gkgud.com/wp-content/uploads/2020/12/havells-room-heater.jpg)
+![havells room heater](https://img.gkgud.com/2020/12/havells-room-heater.jpg)
 
 havells room heater
 

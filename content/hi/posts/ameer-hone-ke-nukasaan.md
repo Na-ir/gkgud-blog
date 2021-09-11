@@ -3,7 +3,7 @@ title: 'Ameer Hone Ke Nukasaan - 10 हैरत-अंगेज़ नुक़्
 date: Sat, 20 Mar 2021 03:27:00 +0000
 draft: false
 tags: ['Amazing Facts Hindi', 'Fact']
-images: ["images/2021/05/Blog-Ideas.jpg"]
+images: ["https://img.gkgud.com/2021/04/hannah-busing-ff5K3-kYPHA-unsplash-1024x1024.jpg"]
 ---
 
 अमीर होने के 10 हैरत-अंगेज़ नुक़्सानात
