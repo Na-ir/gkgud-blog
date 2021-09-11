@@ -2,6 +2,7 @@
 title: 'Facts About Girl in Hindi'
 date: Fri, 09 Apr 2021 11:30:00 +0000
 draft: false
+images: ["https://img.gkgud.com/2021/04/Facts-About-Girl-in-Hindi.png"]
 tags: ['Amazing Facts Hindi', 'Fact']
 ---
 

@@ -2,6 +2,7 @@
 title: 'Ladko Ke Kuch Interesting Facts'
 date: Thu, 01 Apr 2021 02:30:00 +0000
 draft: false
+images: ["https://img.gkgud.com/2021/03/Interesting-Facts-In-Hindi.png"]
 tags: ['Amazing Facts Hindi', 'Fact']
 ---
 

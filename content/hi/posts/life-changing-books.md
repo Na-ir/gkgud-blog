@@ -2,6 +2,7 @@
 title: 'Life Changing Books - किताबें जो आपकी जिंदगी बदल देंगी'
 date: Tue, 23 Mar 2021 07:58:45 +0000
 draft: false
+images: ["https://img.gkgud.com/2021/03/life-change-books.png"]
 tags: ['Amazing Facts Hindi', 'Fact']
 ---
 
