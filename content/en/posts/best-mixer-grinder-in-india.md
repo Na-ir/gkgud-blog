@@ -115,13 +115,13 @@ Some higher RPM changes the excess cost of ingredients to be handled within a sh
 
 *   **Chutney grinding blade-** they are Used for making many types of chutney
 
-*   **Dry grinding blade- **They are used for dry grinding purposes such as at the time of grinding rice or spice powder.
+*   **Dry grinding blade-** They are used for dry grinding purposes such as at the time of grinding rice or spice powder.
 
-*   **Wet grinding blade- **Wet grinding blades are used to make a paste of vegetables or fruits.
+*   **Wet grinding blade-** Wet grinding blades are used to make a paste of vegetables or fruits.
 
-*   **Shred disc- **They are used to shredding for cheese, fruits, and vegetables
+*   **Shred disc-** They are used to shredding for cheese, fruits, and vegetables
 
-*   **Slicing disc- **Slicing disc They are utilized to slice fruits and vegetables.
+*   **Slicing disc-** Slicing disc They are utilized to slice fruits and vegetables.
 
 You May [](https://www.gkgud.com/geyser-for-kitchen/) Also Like [-Top 5 Best Geyser for Kitchen in India Buying Guide](https://www.gkgud.com/geyser-for-kitchen/)
 
@@ -234,7 +234,7 @@ It can give an excellent trouble-free performance for many years.
 
 ### ****Which is the best mixer grinder for grinding turmeric and other spices?****
 
-The best and valuable mixer grinder for turmeric and other spices are **Bajaj**Rex 500W Mixer**** and **Sujata Dynamix. **  
+The best and valuable mixer grinder for turmeric and other spices are **Bajaj** Rex 500W Mixer ** and **Sujata Dynamix.**  
 They have a powerful motor, sharp blades and are designed for heavy-duty grinding.
 
 ### Which is the No 1 Mixer Grinder in India?

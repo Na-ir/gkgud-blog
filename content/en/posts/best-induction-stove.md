@@ -111,7 +111,7 @@ Touch button
 *   **Item model -** HD4928/01
 *   **Power** **\-** 2100 watts
 *   **Product Dimensions -** 35.6 x 28.1 x 6.5 cm
-*   **Item Weight -  **2.1g
+*   **Item Weight -** 2.1g
 *   **Warranty** **\-** 1 year on product
 
 [View On Amazon](https://amzn.to/2J5UCfg)

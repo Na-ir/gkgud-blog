@@ -90,7 +90,7 @@ Best Inverter Battery
 #### **Product Details**
 
 *   **Model** – Luminous RC 18000
-*   **Product Dimensions – **52 x 23 x 32 cm
+*   **Product Dimensions –** 52 x 23 x 32 cm
 *   **Type –** Tall tubular battery
 *   **Weight –** 53.3 Kg
 *   **Capacity –** 150 AH
@@ -132,7 +132,7 @@ Best Inverter Battery
 #### **Product Details**
 
 *   **Model** – FIB0-IB1500 150AH
-*   **Product Dimensions – **30.5 x 25.4 x 22.9 cm
+*   **Product Dimensions –** 30.5 x 25.4 x 22.9 cm
 *   **Weight –** 50 Kg
 *   **Warranty –** 3 years
 *   **Approx backup –** 8 hrs (2 fans, TV, 4 led bulb)
@@ -172,7 +172,7 @@ Best Inverter Battery
 #### **Product Details**
 
 *   **Model** – CR150TT
-*   **Product Dimensions – **35.6 X 30.5 X 27.9 cm
+*   **Product Dimensions –** 35.6 X 30.5 X 27.9 cm
 *   **Weight –** 55 Kg
 *   **Warranty –** 4 years
 *   **Approx backup –** 12-20 hrs
@@ -216,8 +216,8 @@ Best Inverter Battery
 #### **Product Details**
 
 *   **Model No –** VJ145 (V-GUARD)
-*   **Alignment – **Flat Tubular
-*   **Product Dimensions – **25 x 20 x 19 cm
+*   **Alignment –** Flat Tubular
+*   **Product Dimensions –** 25 x 20 x 19 cm
 *   Capacity – 135 Ah
 *   Weight – 30 Kg
 *   Warranty – 25 Months + 15 months prorated warranty
@@ -256,11 +256,11 @@ Best Inverter Battery
 
 #### **Product Details**
 
-*   **Model No – **GTT165
-*   **Alignment – **Tall Tubular
-*   **Product Dimensions – **50.2 x 18.7 x 36 cm
-*   **Capacity – **150 Ah
-*   **Item Weight : **59 kg
+*   **Model No –** GTT165
+*   **Alignment –** Tall Tubular
+*   **Product Dimensions –** 50.2 x 18.7 x 36 cm
+*   **Capacity –** 150 Ah
+*   **Item Weight :** 59 kg
 *   **Warranty –** 4 years
 *   **Approx backup –** 8-12 hrs (2 fans, TV, 4 led bulb)
 
@@ -270,13 +270,13 @@ Best Inverter Battery
 
 #### **Special Features**
 
-*   **Safe for Environment - **Genus Batteries give you power without causing any air pollution unlike Diesel Generators.
+*   **Safe for Environment -** Genus Batteries give you power without causing any air pollution unlike Diesel Generators.
 
 *   **Long Life** - Genus offers Robust, Corrosion-Resistant Plates made of Selenium Low Antimonial Alloy, giving the battery a longer life.
 
 *   **Low Maintenance -** Made with Highly Pure Lead, and Sturdy Design, these Carefully Engineered Plates Require Low Very Little Water Topping.
 
-*   **Long Back Up - **Genus Batteries Recharge Fast and Can Handle Frequent and Long Power Cuts
+*   **Long Back Up -** Genus Batteries Recharge Fast and Can Handle Frequent and Long Power Cuts
 *   150 AH Long Life Batteries with 48 years warranty
 *   Designed for long and frequent Power Cuts
 *   Suitable for both Normal as well as Solar Applications
@@ -393,7 +393,7 @@ You need to regularly check electrolyte levels and toppings regularly. It also r
 
 That may cause physical problems and requires proper ventilation. This is why these batteries are no longer popular.
 
-****Sealed Lead Acid or Maintenance Free Batteries** –** The maintenance-free battery is sometimes called a gel battery.
+**Sealed Lead Acid or Maintenance Free Batteries** The maintenance-free battery is sometimes called a gel battery.
 
 It is a lead-acid battery without maintenance. It uses gel and absorbent glass mat, so it is sealed. Because of this, it is more expensive and has a shorter lifespan.
 

@@ -26,7 +26,7 @@ A geyser or water heater is an electrical device that is very safe to use and qu
 
 **Weight**
 
-****Inner Tank + Warranty****
+**Inner Tank + Warranty**
 
 **Capacity**
 
@@ -96,7 +96,7 @@ Best Geyser Table
 *   **Product Dimensions :** 31 x 33.4 x 46.5 cm; 9.6 Kilograms
 *   **Alignment** : Wall mount Vertical
 *   **Power** : 2000 Watts Operating Voltage: 230 - 230 volts
-*   **Weight : **9.600 gk
+*   **Weight :** 9.600 gk
 *   **Warranty :** 5 years on the Inner tank & 2 years on geyser
 
 [View on Amazon](https://amzn.to/3miJKs8)
@@ -134,14 +134,14 @@ Best Geyser Table
 
 #### **Product Details**
 
-*   **Model No and Type : **Ecosmart Plus 15L
+*   **Model No and Type :** Ecosmart Plus 15L
 *   **Capacity :** 10/15/25/35/50 Liter perfect for big Families
 *   **Colour :** White
 *   **Product Dimensions :** 38.5 cms (Length) x 38.5 cms (Width) x 44 cm(Height)
 *   **Alignment** : Wall mount Vertical
 *   **BEE Star** :-5 star rated
 *   **Power** : 2000 Watts Operating Voltage: 230 - 230 volts
-*   **Weight : **10.100 gk
+*   **Weight :** 10.100 gk
 *   **Warranty :** Warranty: 7 Year on Tank, 4 year on heating element & 2 year on product, Warranty of the Product is Limited to Manufacturing Defects Only
 
 [View On  Amazon](https://amzn.to/384OoF0)
@@ -230,7 +230,7 @@ AO Smith
 
 #### **Product Details**
 
-*   **Product Dimensions : **40 x 40 x 32.7 cm; 9.29 Kilograms
+*   **Product Dimensions :** 40 x 40 x 32.7 cm; 9.29 Kilograms
 *   **Date First Available :** 17 September 2020
 *   **Item Weight :** 9 kg 290 g
 *   **BEE Star Rating :** 5 Star
@@ -268,14 +268,14 @@ AO Smith
 
 #### **Product Details**
 
-*   **Product Dimensions **: 30.9 x 30.9 x 40.4 cm; 8.58 Kilograms
-*   **Date First Available **: 21 December 2015
+*   **Product Dimensions**: 30.9 x 30.9 x 40.4 cm; 8.58 Kilograms
+*   **Date First Available**: 21 December 2015
 *   **Item model number** : Caldia
 *   **Item Weight** : 8 kg 580 g
 *   **Capacity** : 25 Litres
-*   **Wattage **: 2000 Watts
+*   **Wattage**: 2000 Watts
 *   **BEE Rating** : 4 Star
-*   **Warranty **: 2 years on product
+*   **Warranty**: 2 years on product
 
 [View On Amazon](https://amzn.to/2WhB7DH)
 

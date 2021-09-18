@@ -103,14 +103,14 @@ we will discuss the **top 5 best dishwashers in India** along with their revie
 
 #### **Product Details**
 
-*   **Model – **SMS66GW01I
-*   **Color – **White
+*   **Model –** SMS66GW01I
+*   **Color –** White
 *   **Capacity –** 12 liters
-*   **Installation Type – **Free-Standing
-*   **Material – **Stainless Steel
+*   **Installation Type –** Free-Standing
+*   **Material –** Stainless Steel
 *   **Noise Level –** 52 dB
-*   **Item Weight -** 43 kg 500 g
-*   **Item Dimensions LxWxH -** 60 x 60 x 84.5 Centimeters
+*   **Item Weight –** 43 kg 500 g
+*   **Item Dimensions LxWxH –** 60 x 60 x 84.5 Centimeters
 *   **Warranty –** 2 years comprehensive warranty on the product
 
 [View on Amazon](https://amzn.to/3p717Ox)
@@ -153,14 +153,14 @@ we will discuss the **top 5 best dishwashers in India** along with their revie
 
 #### **Product Details**
 
-*   **Model – **DT8S
+*   **Model –** DT8S
 *   **Color –** Silver
 *   **Capacity –** 8 Place Settings (Can fit up to 96 vessels)
 *   **Wash Programs –** 6 (Intensive, normal, ECO, glassware, clean & shine, Mini 30 program)
-*   **Installation Type – **Table Top
-*   **Material – **Stainless Steel
-*   **Item Weight -**25 kg 500 g
-*   **Item Dimensions LxWxH -** 50 x 55 x 59.5 Centimeters
+*   **Installation Type –** Table Top
+*   **Material –** Stainless Steel
+*  **Item Weight –** 25 kg 500 g
+*   **Item Dimensions LxWxH –** 50 x 55 x 59.5 Centimeters
 *   **Warranty –** 2 years comprehensive warranty on product and 5 Years on its motor.
 
 [View On Amazon](https://amzn.to/3muAJfs)
@@ -175,13 +175,13 @@ we will discuss the **top 5 best dishwashers in India** along with their revie
 
 *   **intensive 70C -** for heavily soiled crockery (like Kadhai) provides superior and hygienic cleaning using powerful water jets and high temperature | Normal - for normally soiled loads.
 
-*   **ECO -** a special program for saving water and electricity.
+*   **ECO**-a special program for saving water and electricity.
 
-*   **Clean & shine-** Provides superior washing and drying of lightly soiled crockery and glassware Glassware is for lightly soiled crockery and glasses. 
+*   **Clean & shine**- Provides superior washing and drying of lightly soiled crockery and glassware Glassware is for lightly soiled crockery and glasses. 
 
-*   **Clean & shine -** will provide superior washing and drying. It is suitable for lightly soiled crockery and glassware. Mini 30 unique program gives a quick wash for very lightly soiled loads that do not need drying. 
+*   **Clean & shine**- will provide superior washing and drying. It is suitable for lightly soiled crockery and glassware. Mini 30 unique program gives a quick wash for very lightly soiled loads that do not need drying. 
 
-*   **Dishwasher detergent -** Always use Dishwasher detergent, salt, and rinse aid for the proper functioning of the dishwasher. Using normal detergent will lead to malfunctioning of the dishwasher.
+*   **Dishwasher detergent**- Always use Dishwasher detergent, salt, and rinse aid for the proper functioning of the dishwasher. Using normal detergent will lead to malfunctioning of the dishwasher.
 
 #### **Pros and Cons Table**
 
@@ -206,15 +206,15 @@ we will discuss the **top 5 best dishwashers in India** along with their revie
 
 #### **Product Details**
 
-*   **Model – **DFB424FP
-*   **Color – **Platinum Silver
-*   **Capacity –** 14 Place Settings
-*   **Wash Program –** (True Steam, Quad Wash, Dual Wash, Quite, Turbo, Auto, Eco, Gentle, Quick)
-*   **Installation Type – **Free Standing
-*   **Material – **Stainless Steel
+*   **Model –** DFB424FP
+*   **Color –** Platinum Silver
+*   **Capacity –** 14 Place Settings
+*   **Wash Program –** (True Steam, Quad Wash, Dual Wash, Quite, Turbo, Auto, Eco, Gentle, Quick)
+*   **Installation Type –** Free Standing
+*   **Material –** Stainless Steel
 *   **Voltage –** 230 Volts
-*   **Item Weight** **\-**49 kg
-*   **Item Dimensions LxWxH -** 60 x 60 x 85 Centimeters
+*   **Item Weight –** 49 kg
+*   **Item Dimensions LxWxH –** 60 x 60 x 85 Centimeters
 *   **Warranty –** 2 years on product & 10 Years on Motor
 
 [View On Amazon](https://amzn.to/3mr9ylR)
@@ -255,16 +255,16 @@ we will discuss the **top 5 best dishwashers in India** along with their revie
 
 #### **Product Details**
 
-*   **Model – **Neptune VX
-*   **Color – **Dark Silver
+*   **Model –** Neptune VX
+*   **Color –** Dark Silver
 *   **Capacity –** 12 Place Settings
-*   **Installation Type – **Free-Standing
-*   **Material – **Stainless Steel
-*   **Voltage -** 240 Volts
-*   **Noise Level –**52 dB
-*   **Item Weight -**99 kg 400 g
-*   **Item Dimensions LxWxH -**28.3 x 18.5 x 18.5 Centimeters
-*   **Warranty – **2 years comprehensive warranty on the product
+*   **Installation Type –** Free-Standing
+*   **Material –** Stainless Steel
+*   **Voltage –** 240 Volts
+*   **Noise Level –** 52 dB
+*   **Item Weight -** 99 kg 400 g
+*   **Item Dimensions LxWxH -** 28.3 x 18.5 x 18.5 Centimeters
+*   **Warranty –** 2 years comprehensive warranty on the product
 
 [View On Amazon](https://amzn.to/2LBSwoi)
 
@@ -278,9 +278,9 @@ we will discuss the **top 5 best dishwashers in India** along with their revie
 
 *   **Super Energy Efficiency -** IFB Dishwasher's A++ energy efficiency helps save big on electricity bills and keeps your carbon footprint in check. Save on water bills too with up to 9 liters of water used per day.
 
-*   **Flexible Half Load** **\-** When you have fewer utensils, use the program to save water, detergent, and energy. Load the upper or lower basket for easy washing.
+*   **Flexible Half Load** When you have fewer utensils, use the program to save water, detergent, and energy. Load the upper or lower basket for easy washing.
 
-*   **Quick Wash** **\-** When you're in a hurry get the dishes done in upto 40 minutes. This fast program washes lightly soiled soup bowls, serving bowls etc.
+*   **Quick Wash** When you're in a hurry get the dishes done in upto 40 minutes. This fast program washes lightly soiled soup bowls, serving bowls etc.
 
 *   **Auto Intensive 60-70 -** Great for removing stubborn stains, with a pre-wash at 60° C and then a thorough wash at 70° C. A three-stage rinsing process ensures perfect cleaning.
 
@@ -304,15 +304,15 @@ we will discuss the **top 5 best dishwashers in India** along with their revie
 
 #### ****Product Details****
 
-*   **Model – **SN256W01GI
-*   **Color – **White
+*   **Model –** SN256W01GI
+*   **Color –** White
 *   **Capacity –** 12 Place Settings
-*   **Installation Type – **Free-Standing
-*   **Material – **Stainless Steel
+*   **Installation Type ––** Free-Standing
+*   **Material** – Stainless Steel
 *   **Noise Level –** 52 dB
-*   **Item Weight -**43 kg 500 g
+*   **Item Weight –** 43 kg 500 g
 *   **Item Dimensions LxWxH -** 60 x 60 x 84.5 Centimeters
-*   **Included Components -**1 Dishwasher, 1 Inlet Outlet Pibe, 1 Electrical Wire with Plug, and 1 Detergent Sample
+*   **Included Components -** 1 Dishwasher, 1 Inlet Outlet Pibe, 1 Electrical Wire with Plug, and 1 Detergent Sample
 *   **Warranty –** 2 years comprehensive warranty on product
 
 [View On Amazon](https://amzn.to/2KA1u4S)
@@ -452,7 +452,7 @@ In recent times, these machines have also received some new upgrades in terms of
 
 *   This is for perfectly clean daily dishes with moderately dirty dishes but does not load the glass with utensils made of steel, plastic, etc. This may damage glass utensils.
 
-*   **Heavy Wash Cycle – **This cycle is specially designed to handle difficult cleaning tasks like greasy utensils, sticky, and pans. It uses more than water temperature, intensity, and time.
+*   **Heavy Wash Cycle –** This cycle is specially designed to handle difficult cleaning tasks like greasy utensils, sticky, and pans. It uses more than water temperature, intensity, and time.
 
 *   And works quality other wash cycles. Plastic and glass items should not be loaded for this wash cycle, otherwise, they may break.
 
@@ -462,7 +462,7 @@ In recent times, these machines have also received some new upgrades in terms of
 
 *   This wash cycle is not suitable for heavy dirty pots. It is suitable for light dirty pots. This cycle will use more energy and increase your water and electricity bills.
 
-*   **Energy Saving Cycle – **As is clear from the name itself, this washing cycle consumes less power and water than other types. However, the duration of this option is much longer. It is perfect for light to medium soiled pans.
+*   **Energy Saving Cycle –**As is clear from the name itself, this washing cycle consumes less power and water than other types. However, the duration of this option is much longer. It is perfect for light to medium soiled pans.
 
 *   **Glassware Wash Cycle –** This option is perfect for cleaning lighter and lighter crockery are not for much messy. This mode uses low temperatures and light intensity to gently clean the glassware. In case, it is not available enough for regular washing or mild washing.
 
@@ -528,11 +528,11 @@ Low-level
 
 Best dishwasher ever Depending on the number of smart features, the price of the dishwasher can go up. Below are a few features that are commonly present in some dishwashers.
 
-*   ****Removable upper/lower racks** –** can be adjusted easily to up and down to put the large containers inside the dishwasher. You will find this feature in almost every dishwasher.
+*   **Removable upper/lower racks** – can be adjusted easily to up and down to put the large containers inside the dishwasher. You will find this feature in almost every dishwasher.
 
 *   **Sanitize mode –** It will use hot water to kill about 99.9% of germs as well as bacteria. harmful bacteria, pathogens, germs, and other particles present on kitchen appliances.
 
-*   ****Timer to delay** –**let set a particular time to start the washing. Here you can customize the beginning of the wash cycle as per your convenience.
+*   **Timer to delay** –let set a particular time to start the washing. Here you can customize the beginning of the wash cycle as per your convenience.
 
 *   **Auto-restart –**When there is a frequent power-cut, the auto-restart function ensures the machine starts working from where it has been terminated.
 
